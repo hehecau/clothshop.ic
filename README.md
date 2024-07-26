@@ -1,3 +1,1 @@
-Elektronické objednávky custom doplňkov na oblečenie pre MTA:SA Skimo Roleplay
-
-- Provozovaťel: hehe
+Fiktívna webová stránka pre Roleplay server MTA:SA Skimo Roleplay
